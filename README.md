@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @akodan1
+- 👀 I’m interested in Ministry 
+- 🌱 I’m currently learning Bible and Ministry 
+- 💞️ I’m looking to collaborate on Printing Press Management 
+- 📫 How to reach me danieltakohako@gmail.com
